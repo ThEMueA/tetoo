@@ -1,1 +1,1 @@
-# tetoo edita
+# tetooo
